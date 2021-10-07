@@ -1,2 +1,3 @@
-# nft
-Place for me to advertise my nfts
+# NTFs
+
+NTFs Made By AitherNight
